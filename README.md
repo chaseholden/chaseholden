@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @chaseholden
+- 👋 Hi, I’m @JobsWozniak
 - 👀 I’m interested in Songwriting, Metaphysics, playing piano and guitar, and beautiful UI.
 - 🌱 I’m currently learning the secrets of manifestation and infinite consciousness.
 - 💞️ I’m looking to collaborate on making music. 
